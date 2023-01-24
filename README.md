@@ -1,2 +1,2 @@
 # sofiestec.github.io
-Mi página
+Bienvenidos/as a mi página
